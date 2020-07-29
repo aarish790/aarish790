@@ -1,4 +1,14 @@
-### Hi there 👋
+## Hi, I'm Mohd Aarish 👋 💻
+
+
+
+  
+  
+
+
+
+
+
 
 <!--
 **aarish790/aarish790** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
